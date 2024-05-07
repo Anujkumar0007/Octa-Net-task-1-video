@@ -1,1 +1,0 @@
-# Octa-Net-task-1-video
